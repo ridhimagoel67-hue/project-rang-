@@ -54,6 +54,7 @@ Extensive consumer research was conducted to understand sustainability awareness
 - Market Validation Analysis
 - Research Documentation
 - Startup Pitch Deck
+- Complete learning of starting a business from the ground up and ease of doing business.
 
 Available in:
 
